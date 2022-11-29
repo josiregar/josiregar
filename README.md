@@ -1,4 +1,4 @@
-- 👋 Hai, Saya @josadisiregar200109@gmail.com
+- 👋 Hai Bro, Saya @josadisiregar200109@gmail.com
 - :computer: <b>ilmu padi</b>
 - :coffee:sabubukna
 
